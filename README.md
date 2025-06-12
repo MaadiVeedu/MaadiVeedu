@@ -1,4 +1,4 @@
-# 👋 Welcome to MaadiVeedu.com
+# Buy with Confidence. Sell with Ease – MaadiVeedu.com
 
 We help you buy, sell, and rent Residential, Commercial, and Agricultural properties with ease.
 
